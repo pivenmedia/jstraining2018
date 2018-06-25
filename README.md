@@ -1,1 +1,0 @@
-# jstraining2018
